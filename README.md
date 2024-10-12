@@ -1,2 +1,3 @@
 N.INV LIMITED
-Dealers in funstion organization home and abroad 
+Dealers in function organization
+home and abroad sound plus tents
